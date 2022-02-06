@@ -22,7 +22,7 @@ https://movie-mania0.netlify.app/
 
 - You Can Watch 3-4 Different Trailers and Similiar Movies Also.
 
-- Beautful UI is a +. 🤣
+- Beautiful UI is a +. 🤣
 
 ## Let's Connect 🤝🏻
 
